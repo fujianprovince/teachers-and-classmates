@@ -10,4 +10,4 @@
 如果你觉得本网站不错，欢迎通过微信扫描以上赞赏码向本网站捐款。你的捐款将成为激励本网站建设的动力！预致谢！  
 (东南学苑受本网站建立者陈郑逸的委托，代收关于本网站的捐款。)  
 
-## [阅览结束~休闲一下~](https://www.bilibili.com/blackboard/fe/activity-HQjQSdd3L8.html "休闲一下")  
+## *[阅 览 结 束 ~ 休 闲 一 下 ~](https://fujianprovince.github.io/game.html "休闲一下")*  
